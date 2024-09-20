@@ -10,4 +10,5 @@ PARA VOCÊ ENTRAR EM CONTATO COMIGO
 
 nycollas.ramalho@escola.pr.gov.br
 
-@eosilva.07__
+
+![](![image](https://github.com/user-attachments/assets/da4613a7-cc33-4d50-ba0d-fdd1c0e8138e)
